@@ -1,1 +1,12 @@
-# The-breaker
+https://github.com/Ivan12311999/The-breaker/raw/refs/heads/main/A-Team_Vol.7%20Ch.51.cbz
+https://github.com/Ivan12311999/The-breaker/raw/refs/heads/main/A-Team_Vol.7%20Ch.52.cbz
+https://github.com/Ivan12311999/The-breaker/raw/refs/heads/main/A-Team_Vol.8%20Ch.53.cbz
+https://github.com/Ivan12311999/The-breaker/raw/refs/heads/main/A-Team_Vol.8%20Ch.54.cbz
+https://github.com/Ivan12311999/The-breaker/raw/refs/heads/main/A-Team_Vol.8%20Ch.55.cbz
+https://github.com/Ivan12311999/The-breaker/raw/refs/heads/main/A-Team_Vol.8%20Ch.56.cbz
+https://github.com/Ivan12311999/The-breaker/raw/refs/heads/main/A-Team_Vol.8%20Ch.57.cbz
+https://github.com/Ivan12311999/The-breaker/raw/refs/heads/main/A-Team_Vol.8%20Ch.58.cbz
+https://github.com/Ivan12311999/The-breaker/raw/refs/heads/main/A-Team_Vol.9%20Ch.59.cbz
+https://github.com/Ivan12311999/The-breaker/raw/refs/heads/main/A-Team_Vol.9%20Ch.60.cbz
+https://github.com/Ivan12311999/The-breaker/raw/refs/heads/main/A-Team_Vol.9%20Ch.61.cbz
+https://github.com/Ivan12311999/The-breaker/raw/refs/heads/main/A-Team_Vol.9%20Ch.62.cbz
